@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... business information system 
 - 💞️ I’m looking to collaborate on ...anything that help build my experince in cyber security 
 - 📫 How to reach me ... email rjtupuola15@gmail.com
-- 😄 Pronouns: ... i am a boy 
+- 😄 Pronouns: ... i am a boy maaaannnneee
 - ⚡ Fun fact: ... 
 
 <!---
